@@ -89,3 +89,44 @@ Watashi wa “ikiteiku” koto o sanka shiyou――
 Inochi o mita, soko ni wa kokoro ga aru
 Tatoe donna konnan ga matte iyou tomo
 Watashi wa koko de sakebi tsudzukeru――。
+
+
+
+
+Haru no yoru hitori datta
+Monokuro no sora ni tameiki ga kiete ku
+Ashibayana hito no nami
+Tada mitsumete sa
+Zutto matte ita nda
+Sakura hira ite mo
+Mada samui yoru ni wa
+Omoidasu nda kimi no kao o
+"heikina no?", "daijoubu sa"
+Fuzakete te o furu boku
+Anohi kimi to kawashita yakusoku
+Bokura wa bokura wa
+Ano kaketa tsuki no hanbun o sagashite
+Kodoku o wakeau koto ga dekita nara
+Mouichido chikau yo
+Shikakui benchi suwari
+Bon'yari nagameru sora
+Omoidasu nda kinou no you ni
+Sasayaka na egao sasaina iiai mo
+Dore dake boku o tsuyoku saseta darou
+Are kara are kara
+Ano kaketa tsuki no hanbun o sagashite
+Itsuka wa itsuka wa
+Sakura no hanasaku mangetsu no gen e to
+Utsurikawaru machinami bokura
+Sekasu you kimi wa ima doko de nani o shiteru no
+Sorenari no kurashi sorenari no shiawase
+Soredemo (soredemo) mada oikaketeru
+Bokura wa bokura wa
+Ano kaketa tsuki no hanbun o sagashite
+Kodoku o wakeau koto ga dekitanara
+Mouichido
+Are kara are kara
+Ano kaketa tsuki no hanbun o sagashite
+Itsuka wa itsuka wa
+Sakura no hanasaku mangetsu no gen e to
+
